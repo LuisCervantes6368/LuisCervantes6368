@@ -6,7 +6,7 @@
   
 - 💞️ I’m looking to collaborate on Projects related to environmental data analysis, app development
 
-- 
+  
 - 📫 How to reach me Email: luisfelipebarreracervantes@gmail.com and phone: 772-155-6368
 - ⚡ Fun fact: When I’m not coding, I enjoy learning about carpentry and how to bring ideas to life with my own two hands.
 
